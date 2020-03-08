@@ -1,2 +1,2 @@
 # samsung-galaxy-j6
-https://www.accounts.google.com
+https://www.google.co.id
